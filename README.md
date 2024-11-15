@@ -1,5 +1,8 @@
 # app-dev
 My first repository
+@settings { 
+  font-size: 100;
+}
 
 **My favorite movies/series**
 1. *Stiens gate*
