@@ -12,10 +12,14 @@ One of my favorites in terms of sci-fi anime 😄. This anime brought my mind to
 
 ![Death note](https://wallpapers.com/images/hd/death-note-characters-xfvyor3o8kw8ftq2.webp)
 
-Bro's writing name in notebook.
+Bro's writing name in notebook. Would like to recommend if someone want to watch!.
 
 3. *Gintama*
 
 ![Death note](https://wallpapers.com/images/hd/gintama-characters-in-funny-pose-5uv4d71asn09ehci.webp)
 
 Best parody 😢
+
+4. *Black lagoon*
+
+![Death note](https://wallpapers.com/images/high/black-lagoon-revy-armedand-dangerous-xj2fzoa3z1nqlr26.webp)
