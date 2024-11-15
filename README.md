@@ -12,4 +12,4 @@ One of my favorites in terms of sci-fi anime 😄. This anime brought my mind to
 
 ![Death note](https://wallpapers.com/images/hd/death-note-characters-xfvyor3o8kw8ftq2.webp)
 
-
+Bro's writing name in notebook.
